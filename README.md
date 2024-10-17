@@ -1,4 +1,1 @@
-# xfc69.github.io
-# xfc69.github.io
-# xfc69.github.io
-# xfc69.github.io
+THE LEGNEDARY XFC'S WEBSITE THAT TALKS ABOUT EVERYTHING LIFE HAS TO OFFER
